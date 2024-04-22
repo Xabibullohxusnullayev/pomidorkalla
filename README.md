@@ -1,0 +1,2 @@
+# pomidorkalla
+meni ismim xabibulloh
